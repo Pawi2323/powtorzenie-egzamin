@@ -1,0 +1,2 @@
+# powtorzenie-egzamin
+nie zdam
